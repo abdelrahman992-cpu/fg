@@ -8,4 +8,3 @@ https://www.youtube.com/watch?v=NZ4U9OZdtxk
 
 
 https://www.youtube.com/playlist?list=PLDoPjvoNmBAw4eOj58MZPakHjaO3frVMF
-تمام
